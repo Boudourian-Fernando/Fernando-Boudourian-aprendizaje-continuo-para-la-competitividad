@@ -1,1 +1,2 @@
 # Fernando-Boudourian-aprendizaje-continuo-para-la-competitividad
+En un mundo donde el cambio es constante, el aprendizaje continuo es el motor del éxito. Las empresas que invierten en formación y en la actualización de sus equipos logran mayor innovación y eficiencia. Crear un entorno donde el conocimiento fluya y se comparta fortalece la adaptación y la creatividad. Apostar por la formación es apostar por el futuro.
